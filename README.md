@@ -1,2 +1,0 @@
-# Iqra_2026B01010770
-HCL Project
